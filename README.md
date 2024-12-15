@@ -1,6 +1,6 @@
 ### Welcome
 
-My name is coolsloth55.
+My name is coolsloth55. I'm a programmer, engineer, and probably have way too many tech tinkering projects.
 
 I'm a big fan of playing video games and I enjoy making pizza from scratch. 🎮🍕
 
